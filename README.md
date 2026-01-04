@@ -60,7 +60,7 @@
 ## 一、低价入门级机场（8-15元/月）
 
 ### 1. 布丁猫机场 - 8元起不限制设备
-**官网入口**：[👉 布丁猫机场官网](https://user2.budingcat1.top/#/register?code=KTdyYpN3)
+**官网入口**：[👉 布丁猫机场官网](https://budingcat.top/#/register?code=KTdyYpN3)
 
 **核心优势**：
 - ✅ **8元/月起**，市场最低价之一
