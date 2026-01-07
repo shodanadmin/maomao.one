@@ -20,7 +20,7 @@
 ## 🏆 最优推荐（重点推荐 - 团队响应快，社区氛围好）
 
 ### 红杏云 - Trojan协议+全球60+节点 ⭐⭐⭐⭐⭐
-**官网入口**：[👉 红杏云官网](https://hongxingdl.one/web/#/login?code=MpeXDXcT)
+**官网入口**：[👉 红杏云官网](https://hongxingyun1.com/web/#/login?code=ViOMeZuM)
 **优惠码**：`hx2026`（新用户首单8折）
 
 **核心优势**：
