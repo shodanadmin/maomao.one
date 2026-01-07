@@ -330,7 +330,7 @@
 ---
 
 ### 18. Biubiu加速器 - 三网专线IPLC ⭐⭐⭐⭐⭐
-**官网入口**：[👉 Biubiu官网](https://5zbe7ur8.biubiu.shop/#/register?code=liEwE3uk)
+**官网入口**：[👉 Biubiu官网](https://bce7gtov19.biubiu.shop/#/register?code=liEwE3uk)
 
 **核心优势**：
 - ✅ **三网专线IPLC传输网络**，100+全球节点
